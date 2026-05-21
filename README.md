@@ -1,10 +1,11 @@
-## WHO AM I ??
+## 👤 Who Am I
 
-I'm a cybersec enthusiast and a student doing diploma in IT
+[+] Cybersec enthusiast & IT Diploma Student.
 
-im mostly a boring guy
-i dont talk much 
-can i hack for ya? no
-even if you pay me ? no
-can i mentor ya? you ll be blocked 
-wanna chat with me ? find out my socials and we re good to chat 
+[+] Mostly a boring guy. Don't talk much.
+
+## 🛑 FAQ
+Can you hack for me? No.  
+Can you mentor me? Speedrun to getting blocked.  
+Can we meet irl? Sure if you could find me ;-)  
+Wanna chat with me? Find out my socials and we're good to chat.
