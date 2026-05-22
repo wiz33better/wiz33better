@@ -8,4 +8,4 @@
 Can you hack for me? No.  
 Can you mentor me? Speedrun to getting blocked.  
 Can we meet irl? Sure if you could find me ;-)  
-Wanna chat with me? Find out my socials and we're good to chat.
+Can we chat? Find out my socials and we're good to chat.
